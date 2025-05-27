@@ -1,0 +1,1 @@
+Statistics is a science of collecting, Organizing, and analysing the data 
